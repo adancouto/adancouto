@@ -1,4 +1,4 @@
-## Olá! Eu sou o Adan Couto 🖐️
+## Olá! Eu sou o Adan Couto 😁
 
 [![LinkedIn](https://img.shields.io/badge/LinkedIn-0A66C2?style=for-the-badge&logo=linkedin&logoColor=white)](https://www.linkedin.com/in/adan-couto-33a4182ba/)
 
